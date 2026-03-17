@@ -1,0 +1,1 @@
+# deepsek-v-sederhana
